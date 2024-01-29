@@ -1,2 +1,2 @@
-# Amisha-Agarwal-Resume
+# Amisha-Agarwal-Portfolio
 CV for AMISHA AGARWAL
